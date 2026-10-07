@@ -1,6 +1,6 @@
 # Hi, I'm Herbert Beltrán 👋
 
-**Founder & Director at [OCTO Marketing Digital](https://www.octomd.com)** · Zapopan, Jalisco, Mexico
+**Marketing Director at [OCTO Marketing Digital](https://www.octomd.com)** · Zapopan, Jalisco, Mexico
 
 I help brands, agencies, and public institutions in Mexico grow through digital marketing, content production, and performance campaigns. My work sits where **creative production, technology, and revenue** meet, and that's why I'm passionate about AI voice.
 
